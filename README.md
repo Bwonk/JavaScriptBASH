@@ -1,1 +1,2 @@
 Selam Yiğit 
+Çözdün galiba
